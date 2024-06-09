@@ -8,7 +8,7 @@
 
 ***
 
-“Semua orang sebenarnya sakit, hanya saja sebagian banyak orang memiliki sakit yang sama sehingga mereka menganggap diri mereka sehat”
+“Semua orang sebenarnya sakit, hanya saja sebagian orang memiliki sakit yang sama sehingga mereka menganggap diri mereka sehat”
 
 adalah salah satu nilai yang kumiliki semenjak aku berkuliah.
 
